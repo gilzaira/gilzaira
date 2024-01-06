@@ -1,2 +1,2 @@
 ### Zaira
-![Profile Image](https://photos.app.goo.gl/eer3wtUpn587wB2f8)
+![Profile Image](https://ibb.co/YLYppZR)
