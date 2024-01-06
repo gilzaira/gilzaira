@@ -1,5 +1,4 @@
 # Hello, I'm Zaira
-![Profile Image](https://ibb.co/YLYppZR)
 
 ## About Me - keep dreaming, keep learning
 
