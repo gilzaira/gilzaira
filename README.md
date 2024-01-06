@@ -2,7 +2,7 @@
 
 ## About Me - keep dreaming, keep learning
 
-It's never too late to learn. 
+Learning never stops, and It's never too late to do it. 
 
 I've been day-dreaming of delving into the world of coding for many years, but life's intricate dance has often led the way. 
 
