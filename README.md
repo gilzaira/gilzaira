@@ -24,6 +24,6 @@ The thrill of problem-solving and creating something from scratch is what drives
 
 ## Connect with Me
 
-You can find me on [LinkedIn](www.linkedin.com/in/zairagomezgil) and [GitHub](https://github.com/gilzaira).
+You can find me on [LinkedIn](https://www.linkedin.com/in/zairagomezgil) and [GitHub](https://github.com/gilzaira).
 
 Happy coding! 👩‍💻🚀
